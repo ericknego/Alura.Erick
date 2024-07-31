@@ -1,2 +1,2 @@
 # Alura.Erick
-i am Erick, i am cool student 
+i am Erick, e estudo na escola laurinda 
